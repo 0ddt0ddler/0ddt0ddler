@@ -1,0 +1,4 @@
+- Hi, I’m @0ddt0ddler
+- I’m interested in Software programs and videogames
+- I’m currently learning linux 
+- How to reach me Instagram-@0dd_t0ddler Twitter-@0DD_toddler Reddit-u/0dd_t0ddler 
